@@ -1,3 +1,1 @@
 VERA23
-
-FUCK
